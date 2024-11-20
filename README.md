@@ -15,6 +15,8 @@
 
 - 📫 How to reach me **mouricesera1@gmail.com**
 
+- 📄 Know about my experiences [https://onedrive.live.com/?cid=7E7E9F020917FC79&id=7E7E9F020917FC79%21sc44cef7346a54442b9ee05b38fac0241&parId=root&o=OneUp](https://onedrive.live.com/?cid=7E7E9F020917FC79&id=7E7E9F020917FC79%21sc44cef7346a54442b9ee05b38fac0241&parId=root&o=OneUp)
+
 - ⚡ Fun fact **I am good in Badminton**
 
 <h3 align="left">Connect with me:</h3>
