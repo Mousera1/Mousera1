@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **mouricesera1@gmail.com**
 
-- 📄 Know about my experiences https://1drv.ms/b/c/7e7e9f020917fc79/Ea0ewkNM33BGgb2_rQf5_b4BFgTCoHpI44J_Rx3MWAwS8Q?e=6TDLsq
+- 📄 Know about my experiences https://1drv.ms/b/c/7e7e9f020917fc79/EdeZNe10pRNMtx2TxMH9G0MBPxY3XKpGayU51hvO90TSiA?e=bfuUod
 
 - ⚡ Fun fact **I am good in Badminton**
 
